@@ -14,3 +14,14 @@
 **The Karate Kid**
 
 **Breakfast At Tiffany's**
+
+**Silent Hill**
+
+**Jay & Silent Bob Strike Back**
+
+**Akira**
+
+**Bee Movie**
+
+**Teanage Mutant Ninja Turtles**
+
