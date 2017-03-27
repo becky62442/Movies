@@ -1,4 +1,4 @@
-#Movies
+# Movies
 **Harry Potter and the Order of the Phoenix**
 
 **America 3000**
@@ -9,12 +9,27 @@
 
 **The Blob**
 
+**Plan 9 from outer space**
+
+**Rocky horror picture show**
+
+**The Toxic Avenger**
+
+**Hobo with a shotgun**
+
+**Jupiter Rising**
+
+**The Karate Kid**
+
+**Breakfast At Tiffany's**
+
 **Silent Hill**
 
-**Jay & Silent Bob Strike Back** WRONG
+**Jay & Silent Bob Strike Back**
 
-**Akira** WRONG
+**Akira**
 
-**Bee Movie** WRONG
+**Bee Movie**
 
-**Teanage Mutant Ninja Turtles** WRONG
+**Teanage Mutant Ninja Turtles**
+
