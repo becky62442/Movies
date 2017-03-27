@@ -11,10 +11,10 @@
 
 **Silent Hill**
 
-**Jay & Silent Bob Strike Back** WRONG!
+**Jay & Silent Bob Strike Back** WRONG
 
-**Akira** WRONG!
+**Akira** WRONG
 
-**Bee Movie** WRONG!
+**Bee Movie** WRONG
 
-**Teanage Mutant Ninja Turtles** WRONG!
+**Teanage Mutant Ninja Turtles** WRONG
