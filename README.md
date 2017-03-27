@@ -8,3 +8,9 @@
 **JFK**
 
 **The Blob**
+
+**Jupiter Rising**
+
+**The Karate Kid**
+
+**Breakfast At Tiffany's**
