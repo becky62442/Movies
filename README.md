@@ -25,7 +25,7 @@
 
 **Silent Hill**
 
-**Jay & Silent Bob Strike Back** WRONG!
+**Jay & Silent Bob Strike Back**
 
 **Akira**
 
